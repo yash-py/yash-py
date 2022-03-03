@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yash-py
-- 👀 I’m interested in Congress
-- 🌱 I’m currently learning to fight with ukraine
+- 👀 I’m interested in Gaming, Movies, 3D Cading
+- 🌱 I’m currently learning in 
 - 💞️ I’m looking to collaborate on rahul gandhi
 - 📫 How to reach me - ramdev baba's elephant
 

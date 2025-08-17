@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Yashvardhan Kanekar
-- 👀 I’m interested in Gaming, Movies, 3D Cading
-- 🌱 I’m currently learning in 
-- 💞️ I’m looking to collaborate on 
+- 👀 I’m interested in Gaming, Movies, Programming, F1, 3D Printing
+- 🌱 I’m currently learning in 12th Science, Aspiring CS Engineer
+- 💞️ I’m looking to collaborate on 3D Printing
 - 📫 How to reach me - 
 
 <!---
